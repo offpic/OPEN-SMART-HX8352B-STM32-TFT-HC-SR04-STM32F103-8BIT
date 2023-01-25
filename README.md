@@ -9,3 +9,4 @@ https://www.youtube.com/watch?v=Fx3_FizWjw4
 
 ![image](https://user-images.githubusercontent.com/31142397/210156628-148b6269-b5d6-4d94-9598-cf9671f41c2b.png)
 
+![open smart tft](https://user-images.githubusercontent.com/31142397/214699404-2b40f935-19f0-44bb-b228-836e59ec3798.png)
